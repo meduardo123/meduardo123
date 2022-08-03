@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: 
 - instagram: @eduardomurilloo
-- Linkedin: 
+- Linkedin: murillo-eduardo
 - twitter: @_murilloeduardo
 
 <!---
